@@ -11,3 +11,4 @@ Meu nome é Laissa Andrade
 
 la4088500@gmail.com.br
 
+![](https://media.tenor.com/MITGrXxCV1YAAAAi/cat-guitar.gif)
